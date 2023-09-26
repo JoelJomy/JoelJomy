@@ -1,4 +1,4 @@
-### Hi there 👋
+### Year 1 B.Tech student of Mechanical Engineering 👋
 
 <!--
 **JoelJomy/JoelJomy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
